@@ -87,7 +87,7 @@ Use /takehostage or press F10
 Use /cruisecontrol or press F9
 
 If you run into issues, join our support server:
-👉 https://discord.gg/FDKudWACcQ
+👉 [https://discord.gg/FDKudWACcQ](https://discord.gg/dN4usqsXfk)
 
 Danko for installing! May your RP be wild, synced, and full of moering. 🇿🇦
 
